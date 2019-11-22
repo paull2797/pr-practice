@@ -1,4 +1,4 @@
-## Paul's Ideal Afternoon
+## Mr Mueller's Ideal Afternoon
 
 The best way to relax after a long day is to play videogames and listen to music.
 
